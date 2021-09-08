@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kwon198 sub account of @kwon99
+👋 Hi, I’m @kwon198 sub account of @kwon99
 
 <!---
 - 👀 I’m interested in ...
